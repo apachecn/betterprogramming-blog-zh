@@ -1,0 +1,5 @@
+# 去死吧！你这个巨蟒异教徒！
+
+> 原文：<https://betterprogramming.pub/die-you-python-heretic-c249030b65af>
+
+![](img/0a8b09a5f2d5177431de2216d1b09300.png)![](img/ab91cedd49e3358c25a00ec8ec1180be.png)![](img/d7bb60eaa8c7306bc16e751cc2e3a623.png)![](img/68a27d1109e61294446671bfcf09014a.png)![](img/eb93bb376c2bcb170d27cf67b85d033a.png)![](img/5243b4ca73ca9f0f680e979a27dd1cbe.png)![](img/a7ee4dad0a180d3b931427a358d4e90a.png)![](img/2ca6ca325662bacb673cc60c8f68dc4f.png)![](img/aefae743826ffc34c8e7bbc3442c704f.png)![](img/d680e9c3610d14dc75f04de6e86cd0fe.png)![](img/9fe5e3ef69395a577f66cdf44b9ef7c1.png)![](img/153b3b9a587f93283244c57b41653e29.png)![](img/f6ed4b94d091b83f66cf906d27d92f4c.png)![](img/04b7c6a7339d670018c7048041780c84.png)![](img/bce61134149e4ed4eac6601542ec39b1.png)![](img/d64a15981a97f8749291ae4b249b6351.png)![](img/52e4467fb8103936c93b66618b65c08a.png)![](img/5500ec6fa3ce3fe25928715b6608df21.png)![](img/a0180949bbe3e354f49d4af0bf3e6fbd.png)![](img/6a008e46a0acde96a8fba1900557a4db.png)![](img/e559b0a1379b3f11d92baab174d570c9.png)![](img/9e3880e657452fec2086dfebd56237ce.png)
